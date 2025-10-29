@@ -1,2 +1,2 @@
-# Semen-teros
-seme -teros
+pankeike
+pankakes
