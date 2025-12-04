@@ -1,5 +1,6 @@
-![texto alternartivo](![descarga](https://github.com/user-attachments/assets/6192f8bd-d758-4a07-aee1-89df77ce407b)
-![texto alternartivo]![OIP (1)](https://github.com/user-attachments/assets/38cad057-64c9-421b-a33a-99f1cbe9832f)
+![texto alternartivo]![EX-1440x768-HuellaC-Sello](https://github.com/user-attachments/assets/5dd77fd3-673f-45e4-a68b-75dcafd68403)
+
+![texto alternartivo]!![OIP (2)](https://github.com/user-attachments/assets/02ca9148-d2c3-42d6-aa34-b2a26e1a569e)
 
 ![texto alternartivo]![OIP](https://github.com/user-attachments/assets/5e0ac656-fa61-4eb3-9f50-45c2a61d39f2)
 
