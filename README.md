@@ -2,7 +2,8 @@
 
 ![texto alternartivo]!![OIP (2)](https://github.com/user-attachments/assets/02ca9148-d2c3-42d6-aa34-b2a26e1a569e)
 
-![texto alternartivo]!<https://github.com/user-attachments/assets/cc0f712a-3c8e-44f5-ac33-f79e430daded>
+![texto alternartivo]!![OIP (3)](https://github.com/user-attachments/assets/c4b2c65f-d897-4446-a7aa-a19753fcb6d3)
+
 
 
 
