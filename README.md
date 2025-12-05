@@ -2,7 +2,7 @@
 
 ![texto alternartivo]!![OIP (2)](https://github.com/user-attachments/assets/02ca9148-d2c3-42d6-aa34-b2a26e1a569e)
 
-![texto alternartivo]!<img width="1149" height="1200" alt="ecovasos-ecocup1-1-1149x1200" src="https://github.com/user-attachments/assets/cc0f712a-3c8e-44f5-ac33-f79e430daded" />
+![texto alternartivo]!<https://github.com/user-attachments/assets/cc0f712a-3c8e-44f5-ac33-f79e430daded>
 
 
 
